@@ -1,0 +1,5 @@
+- Hello, guys, my name is Yuri, but you can call me Yurin if you want 
+- I’m interested in make things? I think is thats lol
+- ............
+- I’m looking to collaborate on everything
+- you can just call me
